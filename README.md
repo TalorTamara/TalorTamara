@@ -1,8 +1,7 @@
 - Hey! I'm Tal 
 - I'm originally from sunny 🇮🇱 
-- I have hardcore 🇬🇪 & 🇷🇺 roots
+- I have hardcore 🇬🇪 roots
 - And I currently live & study in cloudy 🇩🇰 
-- I study Multimedia design at KEA in CPH 
 - You can reach me on Insta / facebook  
 - Cheers ❤️ 
 
